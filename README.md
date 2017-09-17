@@ -1,1 +1,0 @@
-# whityart.github.io
